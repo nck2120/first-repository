@@ -5,4 +5,4 @@ My name is Nayla Kidd. I'm a sophomore undergraduate student at Columbia Univers
 
 Til next time! 
 
-<3, nayla 
+<3 nayla 
